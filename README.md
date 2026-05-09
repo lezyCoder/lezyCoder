@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there, **Vijay** this side. Thank you for hopping to my account.<br>
+Hey there, **Vijay** this side. Thank you for hopping into my account.<br>
 <br>
 I'm **Electronics and telcommunication graduate** <br>
 <br>
